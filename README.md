@@ -1,0 +1,2 @@
+# preceito
+Trabalho de sociologia
